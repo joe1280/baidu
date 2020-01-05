@@ -33,7 +33,7 @@ https://url.cn/56sl6Dg  ni93   (提*取*码) 马丁·伊登
 
 https://url.cn/5SIAS2h  vbjv (提*取*码) 心迷宫
 
-https://url.cn/57Mb4Hz  sked  (提*取*码)   霹雳娇娃2019
+https://url.cn/5CYfvfJ  nxrv 霹雳娇娃2019
 
 https://url.cn/5Ooc8ti   ei8n 半个喜剧人
 
