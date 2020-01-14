@@ -5,7 +5,7 @@ https://url.cn/5dEcWMU      (提*取*码)v7ih    只有芸知道
 
 https://url.cn/5n6YjCQ      (提*取*码)k5h4    误杀
 
-https://url.cn/59ROmvJ  qrzb(提*取*码)k5h4  误杀瞒天记
+https://url.cn/59ROmvJ  qrzb(提*取*码)qrzb  误杀瞒天记
 
 https://url.cn/54NssEw      (提*取*码)jfp8  美丽人性
 
@@ -48,3 +48,5 @@ https://url.cn/5jId2FV  (提*取*码) xcpk 宠爱
 https://url.cn/5BYuTAj    (提*取*码)cng4  冰雪奇缘2
 
 https://url.cn/5irqwPU ( 提*取*码) 48wu 两只老虎
+
+https://pan.baidu.com/s/174Hj40X3QM8DLKxYOHKPbg  uecb( 提*取*码)  紫罗兰永恒花园外传：永远与自动手记人偶
