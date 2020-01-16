@@ -62,3 +62,5 @@ https://pan.baidu.com/s/174Hj40X3QM8DLKxYOHKPbg  ( 提*取*码) uecb 紫罗兰�
 海上钢琴师 链接: https://pan.baidu.com/s/1E5Np7dX2pE8lsmN5JAlJ0A 提取码: 9txt
 
  疯狂的外星人 链接: https://pan.baidu.com/s/1IfinaFjYz1xd_By5QADdBw 提取码: bkba
+ 
+少年乔乔的世界 https://pan.baidu.com/s/1AyneHq-3893dH0_3jTK28w 提取码: excg 复制这段内容后打开百度网盘手机App，操作更方便哦
