@@ -65,5 +65,7 @@ https://pan.baidu.com/s/174Hj40X3QM8DLKxYOHKPbg  ( 提*取*码) uecb 紫罗兰�
  疯狂的外星人 链接: https://pan.baidu.com/s/1IfinaFjYz1xd_By5QADdBw 提取码: bkba
  
  
-少年乔乔的世界 https://pan.baidu.com/s/1AyneHq-3893dH0_3jTK28w 提取码: excg 
+少年乔乔的世界 https://pan.baidu.com/s/1AyneHq-3893dH0_3jTK28w 提取码: excg  
+
+蓝与黑 https://pan.baidu.com/s/1dpY-ruQvJvJnosWZcxIurQ 提取码: 8jps
 
