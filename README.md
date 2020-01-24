@@ -96,4 +96,4 @@ https://pan.baidu.com/s/174Hj40X3QM8DLKxYOHKPbg  ( 提*取*码) uecb 紫罗兰�
 
 黑皮书 链接: https://pan.baidu.com/s/18wvLxcQ0a6w6u9TzZMeshw 提取码: rjk7
 
-狂赌之渊 https://pan.baidu.com/s/1VmLCOZlZW07I_Rmx8vbSIQ 提取码: 24rc 
+狂赌之渊第一季  https://pan.baidu.com/s/1VmLCOZlZW07I_Rmx8vbSIQ 提取码: 24rc 
