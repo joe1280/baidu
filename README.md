@@ -93,3 +93,5 @@ https://pan.baidu.com/s/174Hj40X3QM8DLKxYOHKPbg  ( 提*取*码) uecb 紫罗兰�
 多哥 https://pan.baidu.com/s/1oFDunUU6UQq0P6bnn0AiEw   fzx7
 
 影子司令 链接: https://pan.baidu.com/s/1a06gDcKLac4ZbUcTGu9IQA 提取码: miit
+
+黑皮书 链接: https://pan.baidu.com/s/18wvLxcQ0a6w6u9TzZMeshw 提取码: rjk7
