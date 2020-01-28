@@ -166,3 +166,5 @@ https://pan.baidu.com/s/174Hj40X3QM8DLKxYOHKPbg  ( 提*取*码) uecb 紫罗兰�
 催眠裁决https://pan.baidu.com/s/1GjMUo9DYtQD_0f_NPgNHOQ 提取码: 5566
 
 大蛇2 https://pan.baidu.com/s/1z9g1jHGz-xTR5hStmF-Jgg 提取码: 5566
+
+银河补习 ：链接: https://pan.baidu.com/s/18_3gSTYoRRcRrqGKTQJ_hw 提取码: ft9p 复制这段内容后打开百度网盘手机App，操作更方便哦
